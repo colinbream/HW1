@@ -1,2 +1,0 @@
-Colin Bream
-Colorado Rockies
